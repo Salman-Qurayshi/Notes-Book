@@ -1,4 +1,5 @@
-> 📄 [View Better Formatted Notes on Notion]([https://your-notion-link-here](https://rattle-syringa-129.notion.site/Notes-2193e043159d8014b424cd5a359ce775?source=copy_link))
+> 📄 [View Better Formatted Notes on Notion](https://rattle-syringa-129.notion.site/ebd/2193e043159d8014b424cd5a359ce775)
+
 
 
 ---
